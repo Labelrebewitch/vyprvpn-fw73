@@ -1,4 +1,4 @@
-
+Enhance your VyprVPN experience with VyprVPN rare Plugin: 24/7-support & OpenVPN-support, the #1 plugin. Includes 24/7-support and OpenVPN-support for a safer and more private
 
 
 
